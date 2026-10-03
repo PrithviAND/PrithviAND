@@ -1,5 +1,3 @@
-# 💫 About Me:
-I'm a Second year Student under Information technology branch  in DTU. I'm a tech enthusiast and knee to solve problems.
 
 
 ## 🌐 Socials:
